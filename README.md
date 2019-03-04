@@ -2,7 +2,7 @@
 
 PENÚLTIMO LUNES DE CADA MES. 
 
-PRÓXIMA CHARLA: 18 DE MARZO
+**PRÓXIMA CHARLA: 18 DE MARZO**
 
 Te encuentras en el repositorio común de la divulgación mensual interna. 
 
